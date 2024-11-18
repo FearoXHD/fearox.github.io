@@ -1,2 +1,2 @@
 # FearoX.github.io
-https://shorturl.at/D39bm
+https://shorturl.at/0FGLO
